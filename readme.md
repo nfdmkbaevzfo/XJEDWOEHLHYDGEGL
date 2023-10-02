@@ -1,0 +1,11 @@
+In a labyrinth of words and rhyme,
+A riddle conceals a seed phrase sublime.
+Navigate its twists, both sharp and round,
+To unlock the treasure that lies unbound.
+
+In whispers of wind and tales of old,
+The riddle beckons, its secrets untold.
+Sift through the clues, each line a clue,
+As the seed phrase awaits discovery anew.
+
+ЧtгyfZtгЙΤЫаЕΞЁΓпΒOВшΡшчνЫfNСCΕΡИйΛνСΕΖЫΖΓΓzΜΥκΡΓΒΜΡВЫfЫбЙЫCzЫCшпOκΡaчfΥΓпИNfΓΕВfИЙбВпИΓпΓCzВOΥaпrΜбΑΓfΥбrбzΡΕщΡfпВνтrΕΓΖafOγИΜВΡΜΖΥΑСCъВΛйΜκΓΕΡΜΡfΖCпaИzΡΓzВЙzΥΥИСzИCчΓпΛИCfйчЙпйИΒСrпЫOΥЫВfΡΕшΛzκпΕИчъΛЙfВΛъшzfйСΖтΥчOбΓчпΛfΑaΖВΡCщzfaВΛЙпκЫΜΛпfΡOfΡΕЙrκfκΜCЫΑΥfСΒHΓчЫΥaчΛΥΕСΡΓчΓOfпщfzfИΜaпΜΥzЙЯafпaЫΖпбCВΓCaΥчИВΕИκъΡaΥИzΓИaΥЙЯИazOбΥaчΛΜΥчпzйOбΑκOaщйfκΜъВΡΛпΓΡΑпΖъΓΛΡпκЫΜΛИЙΑЫfЫйOΥfЫΜСrшВfпΕzСaВΓппΕЙzчΜΜaΒΛΜaщκпбrOΖВИCСrzΛбСпaшбfΓκΜЫΛΖИИЙъшfΓaбИΓzВOzпЫВВЙСщСЫCщaCЯfшшΥчΓOfпaЫνzzΓΕИΕбЫЙЯΖтΥчOбЙСΜκЫшВпOΜбκΛΡЫИfшΛfΕΜΛпΒΓΖтпaΕбaСΓΑOCOΛΖfOЙшΕйбΑЫγщб
